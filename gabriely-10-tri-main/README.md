@@ -1,1 +1,0 @@
-# gabriely-10-tri
